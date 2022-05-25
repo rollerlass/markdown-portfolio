@@ -1,1 +1,1 @@
-## Lori Shelly, Corporate Paralegal
+## Lori Shelly
