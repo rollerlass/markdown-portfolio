@@ -1,1 +1,1 @@
-**new** to GitHub but *accomplished and experienced* paralegal
+I am **new** to GitHub but an *accomplished and experienced* paralegal
